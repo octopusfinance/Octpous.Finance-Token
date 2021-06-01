@@ -4,7 +4,7 @@ Octopus Finance is a high-yield farming token. There is a 7% tax on every transa
 
 Our team of both professionals and community volunteers constantly working behind the scenes on updates, partnerships, social media, and more. As you can see, this has worked very well and we will continue increase our efforts.
 
-Our long-term vision is a gaming platform with a mobile app (Gambling game); For every gamer deliver what they want boundless possibilities for fun.
+Our long-term vision is a gaming platform (Gambling game); For every gamer deliver what they want boundless possibilities for fun.
 
 # It might be a way to get rich quickly. Don't miss it again !
  
