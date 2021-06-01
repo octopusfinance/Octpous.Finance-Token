@@ -5,5 +5,7 @@ Our long-term vision is a gaming platform with a mobile app (Gambling game); For
  It might be a way to get rich quickly. Don't miss it again !
  
 Octopus.Finacne Official Website : https://octopusmoon.com/
+
 Octopus.Finacne Official Twitter : https://twitter.com/finance_octopus
+
 Telegram Official English Group : https://t.me/joinchat/AbtS0swcFSMyYTA1
