@@ -6,7 +6,7 @@ Our team of both professionals and community volunteers constantly working behin
 
 Our long-term vision is a gaming platform with a mobile app (Gambling game); For every gamer deliver what they want boundless possibilities for fun.
 
-## It might be a way to get rich quickly. Don't miss it again !
+# It might be a way to get rich quickly. Don't miss it again !
  
 # Octopus.Finacne Official Website : https://octopusmoon.com/
 
