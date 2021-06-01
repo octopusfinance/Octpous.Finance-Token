@@ -12,4 +12,4 @@ Our long-term vision is a gaming platform with a mobile app (Gambling game); For
 
 # Octopus.Finacne Official Twitter : https://twitter.com/finance_octopus
 
-# Telegram Official English Group : https://t.me/joinchat/AbtS0swcFSMyYTA1
+# Telegram Official English Group : https://t.me/octopusfinancetg
